@@ -8,9 +8,6 @@
 
 
 [my rentry](https://rentry.co/lgnis)ㅤㅤㅤ ㅤ <img src="a-helphtml__11_.ico"> ⠀our awesome (dry) [dc server](https://discord.gg/nUzayvUq8) ㅤ<img src="a-helphtml__11_.ico">  ㅤㅤㅤㅤㅤㅤ [my dc](https://discord.com/channels/@me)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(unless 2bfrqs w me) 《
-
-
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(unless 2bfrqs w me) 《
 </p>
 
